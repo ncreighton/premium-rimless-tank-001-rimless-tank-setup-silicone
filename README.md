@@ -1,0 +1,2 @@
+# premium-rimless-tank-001-rimless-tank-setup-silicone
+Stop re-sealing your rimless tank three times—get a lab-grade workflow that ensures a perfect bond on the first try.  This Notion template turns the chaotic, error-prone process of rimless tank setup and silicone seal work into a repeatable, precision-driven system. It eliminates guesswork, tracks every variable from cure time to silicone bead thic
